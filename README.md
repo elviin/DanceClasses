@@ -1,2 +1,2 @@
-# DanceClasses
-A guide for dance teachers how to manage dance classes. 
+# A guide for dance teachers how to manage dance classes
+
