@@ -1,16 +1,23 @@
 # A guide for dance teachers how to manage dance classes
 
 ### Scheduling 
-1. Start the lesson on time. This is even more important when the lesson is part of a festival lineup with short breaks, or even no breaks at all between the classes.
-2. Require breaks between the lessons from the festival organisators. Some just avoid breaks in the festival programm in order to rent the workshop or the dance venue for lower costs. 15 minutes between the lessons should be enough for your students to get ready for the next dose of great moves. 
-2. End the lesson on time. Sometimes it is nice to finish the choreography you were working hard on, shoot the videos, promote yourself for the next festival you are going to teach in. But be aware that another lesson in a different room could have already started and your students are going to miss some essential stuff of their next favourite teachers.
+1. Start the lesson on time. This is even more important when the lesson is a part of a festival lineup with short breaks, or even no breaks at all between the classes.
+2. Require breaks between the lessons from the festival organizers. Some just avoid breaks in the festival program in order to rent the dance venue for lower costs or fit more lessons in the lineup. 15 minutes between the lessons should be enough for the students to get ready for the next dose of great moves. 
+2. End the lesson on time. Every time it is nice to finish the choreography you were working hard on, shoot the videos, promote yourself for the next festival you are going to teach in. But be aware that another lesson in a different room could have already started and your students are going to miss some essential stuff from their next favorite teachers.
 
 ### Class formations
-1. Organise the formation of your students right from the begining of the class. Crowd is also a formation, more useful for a engaged talks, rather than for a teaching dancing figures.  
+1. Organize the formation of your students right from the beginning of the class. Crowd is also a formation, more useful for an engaging talk, rather than for teaching dancing figures.  
+2. Leaders should change their positions in most cases. The reason for leaders changing is that they need to see the teacher, and some of them do not stand in a good spot (behind a column, in a corner, behind other students). Obviously, if the figures for the followers are complex, then, in that case, it would be better if the followers swap the partners.
+3. Those students who are not willing to swap the partner should stay at the edge of the class formation. They are familiar with the social principals, and it is their choice. They should not occupy nice spots right in front of the teachers, as the other leaders and followers would like also to see the teachers in order to improve. The teachers should strive to give a fair share of their skills to everyone.
+4. Instruct your students to swap the partner after a short time. Especially when explaining a figure from the very start of the lesson, it is always useful to make frequent changes. Try twice and let swap the partners. Some students are not able to get the moves with a current person, another partner can give them a piece of good advice, that will help a lot. If some students are not willing to swap, ask them politely to move to the edge of the formation. See point 3.
+5. Change your orientation frequently as the students can see your leading or following from their limited point of view.
+6. Change the spot in the class, dive in the crowd, go among the students to show the move. If there are two stages in a bigger hall, use that as an opportunity, and swap frequently these stages.
+7. Do not allow the students with privileged spots to cover the view entirely for the students at the edge of the formation. Always check that your students have a fair portion of your class.
 
-2. Leaders should change their positions. Not followers. The reason for leaders changing is that they need to see the  
 
-1. Actual numbers don't matter, just that it's a number
-⋅⋅1. Ordered sub-list
-4. And another item.
-####Possible formations 
+### Song tempo
+1. It is a good choice to select a slower song at the beginning of the class, and then later increase the tempo, with different songs. Especially in case of more sensual figures, it is difficult for the students to master the moves if the songs have a faster tempo. The technique is important to fixate, and with a faster tempo, it is even more difficult at the time when students first encounter your cool figure.
+2. Sometimes it is fun to practice the figures on a song which is not the right style, but the beats match the choreography.
+
+### Respect yourself and others
+1. When your amazing figure is being questioned, it is always a good sign that your students are engaged, or the figure is a bit more complex. Do not ridicule the students for that, or make fun of them. If they are interested, explain the figure or the move from a different point of view. 
