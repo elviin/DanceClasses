@@ -28,3 +28,4 @@
 2. Speak loudly and clearly split the choreo parts.
 3. When you are going to start a move, always start with 5, 6, 7, 8, so that the students can get ready.
 4. If you do not have their attention, try to figure out first, why everyone is talking. Maybe there is blind spot in your teaching and the students are confused.
+5. Ask the students at the biginning of the class, what is their favourite langue. You can always switch between the languages during the class.
