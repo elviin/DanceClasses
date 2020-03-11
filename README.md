@@ -1,9 +1,9 @@
 # A guide for dance teachers how to manage dance classes
 
 ### Scheduling 
-1. Start the lesson on time. This is even more important when the lesson is part of a festival lineup with short breaks, or even no breaks at all between the classes.
+1. Start the lesson on time. This is especially important when the lesson is part of a festival lineup with short breaks, or even no breaks at all between classes.
 2. Require breaks between the lessons from the festival organizers. Some just avoid breaks in the festival program in order to rent the dance venue for lower costs or fit more lessons in the lineup. 15 minutes between the lessons should be enough for the students to get ready for the next dose of great moves. 
-3. End the lesson on time. Every time it is nice to finish the choreography you were working hard on, shoot the videos, promote yourself for the next festival you are going to teach in. But be aware that another lesson in a different room could have already started and your students are going to miss some essential stuff from their next favorite teachers.
+3. End the lesson on time. Finishing the choreography you were working hard on, shooting the videos and promoting yourself for the next festival you are going to teach in should all be done within the time slot of your lesson. Another lesson in a different room could have already started and your students should not miss the essential basics from their next class.
 
 ### Class formations
 1. Organize the formation of your students right from the beginning of the class. A crowd is great for for an engaging discussion. A different arrangement should, however, be adopted for teaching dancing figures. 
