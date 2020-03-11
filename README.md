@@ -38,3 +38,6 @@
 3. If you are not able to lead your figure with a random follower, consider to simplify the figure. See the point 2.
 4. Give students enough time to repeat the figures.
 5. This point is similar to the point 2, but consider also teaching alternative figures. 
+
+
+If everything goes wrong, still try to have fun.
