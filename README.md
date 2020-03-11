@@ -36,3 +36,5 @@
 1. It is more fun when your students can reproduce the figures in the next party. 
 2. More complexity and tricks can be added towards the end of the workshop.
 3. If you are not able to lead your figure with a random follower, consider to simplify the figure. See the point 2.
+4. Give students enough time to repeat the figures 
+5. This point is similar to the point 2, but consider also teaching alternative figures. 
