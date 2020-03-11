@@ -24,12 +24,13 @@
 1. When your amazing figure is being questioned, it is always a good sign that your students are engaged, or the figure is a bit more complex. Do not ridicule the students for that, or make fun of them. If they are interested, explain the figure or the move from a different point of view. 
 
 ### Communication
-1. Use whatever communication tool you want: smile, body language, combination of languages. If the students have fun, and can reproduce your figures, then you should not be woried about your language skills at all.
-2. Speak loudly so those guys and girls at the back of the formation can hear you. 
-3. Clearly split the choreo parts. You can start with a rough form of the combination and increase its complexity steadilly during the class.
-4. When you are going to start a move, always start counting with 5, 6, 7, 8, so that the students can get ready.
-5. If you do not have their attention, try to figure out first, why everyone is talking. Maybe there is dark corner in your teaching and the students are confused.
-6. Ask the students at the biginning of the class, what is their favourite langue. You can always switch between the languages during the class.
+1. Smile.
+2. Use whatever communication tool you want: smile, body language, combination of languages. If the students have fun, and can reproduce your figures, then you should not be woried about your language skills at all.
+3. Speak loudly so those guys and girls at the back of the formation can hear you. 
+4. Clearly split the choreo parts. You can start with a rough form of the combination and increase its complexity steadilly during the class.
+5. When you are going to start a move, always start counting with 5, 6, 7, 8, so that the students can get ready.
+6. If you do not have their attention, try to figure out first, why everyone is talking. Maybe there is dark corner in your teaching and the students are confused.
+7. Ask the students at the biginning of the class, what is their favourite langue. You can always switch between the languages during the class.
 
 ### Figures
 1. It is more fun when your students can reproduce the figures in the next party. 
