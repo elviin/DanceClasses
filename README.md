@@ -1,4 +1,4 @@
-# A guide for dance teachers how to manage dance classes
+# A guide for dance teachers on how to manage dance classes
 
 ### Scheduling 
 1. Start the lesson on time. This is especially important when the lesson is part of a festival lineup with short breaks, or even no breaks at all between classes.
