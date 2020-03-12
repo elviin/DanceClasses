@@ -20,8 +20,6 @@
 2. If your choreo fits so well with a song, play this song also during the lesson, not just for your demo.
 3. Sometimes it is fun to practice the figures on a song which is not the right style, but the beats match the choreography.
 
-### Respect yourself and others
-1. When your amazing figure is being questioned, it is always a good sign that your students are engaged, or the figure is a bit more complex. Do not ridicule the students for that, or make fun of them. If they are interested, explain the figure or the move from a different point of view. 
 
 ### Communication
 1. Smile.
@@ -31,6 +29,8 @@
 5. When you are going to start a move, always start counting with 5, 6, 7, 8, so that the students can get ready.
 6. If you do not have their attention, try to figure out first, why everyone is talking. Maybe there is dark corner in your teaching and the students are confused.
 7. Ask the students at the biginning of the class, what is their favourite langue. You can always switch between the languages during the class.
+8. Respect yourself and others. When your amazing figure is being questioned, it is always a good sign that your students are engaged, or the figure is a bit more complex. Do not ridicule the students for that, or make fun of them. If they are interested, explain the figure or the move from a different point of view. 
+
 
 ### Figures
 1. It is more fun when your students can reproduce the figures in the next party. 
